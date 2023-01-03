@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @kurniawidyaa
-- 👀 I’m interested in Programing and craft
+- 👀 I’m interested in Programming and Craft
